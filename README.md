@@ -36,7 +36,7 @@ When I know I'll be away for a long time I'll change my skin name to something l
 ### <ins> **__INTERESTS__** </ins>
 
 My interests insist of cartoons, horror media, video games and more!
-**FNaF, Sonic the Hedgehog, MLP, RPG maker horror games,Umamusume, Vocaloid/Utauloid, Project Sekai ( PJSK ), Omori, Little Goody Two Shoes, Undertale/Deltarune, BatIM, Cuphead, Doki Doki Literature Club/Plus, Little Nightmares, Splatoon, Alien Stage, Lacey's Flash Games, Arcane, Needy Streamer Overload, A Hat in Time, Naruto, Danganronpa ( yikes... ), etc
+**FNaF, Sonic the Hedgehog, MLP, RPG maker horror games,Umamusume, Vocaloid/Utauloid, Project Sekai ( PJSK ), Omori, Little Goody Two Shoes, Undertale/Deltarune, BatIM, Cuphead, Doki Doki Literature Club/Plus, Little Nightmares, Splatoon, Alien Stage, Lacey's Flash Games, Arcane, Needy Streamer Overload, A Hat in Time, Naruto, Danganronpa ( yikes... ), etc**
 
 > Will add more if I gain new interests or forgot to add one.
 
