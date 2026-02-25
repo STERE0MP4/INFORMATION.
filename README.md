@@ -4,8 +4,9 @@
 > I am still VERY much new to making these posts. This will be regularly updated if I find something new to add.
 ### **BASICS**
 
-> *Hiya! I'm currently 20 years old. Ace Lesbian*  
+> *Hiya! I'm currently 20 years old.*  
 > *She / her but you can generally use any pronouns on me!*
+> *I do go by Ichi but you may refer to me as another name, no worries!*  
 
 ![aaa](https://static.wikia.nocookie.net/omori/images/1/18/Aubrey_Eyes_Closed_RW.gif/revision/latest?cb=20211217080038)  
 
@@ -35,7 +36,7 @@ When I know I'll be away for a long time I'll change my skin name to something l
 # 
 ### <ins> **__INTERESTS__** </ins>
 
-My interests insist of cartoons, horror media, video games and more!
+My interests insist of cartoons, horror media, video games and more!  
 **FNaF, Sonic the Hedgehog, MLP, RPG maker horror games,Umamusume, Vocaloid/Utauloid, Project Sekai ( PJSK ), Omori, Little Goody Two Shoes, Undertale/Deltarune, BatIM, Cuphead, Doki Doki Literature Club/Plus, Little Nightmares, Splatoon, Alien Stage, Lacey's Flash Games, Arcane, Needy Streamer Overload, A Hat in Time, Naruto, Danganronpa ( yikes... ), etc**
 
 > Will add more if I gain new interests or forgot to add one.
